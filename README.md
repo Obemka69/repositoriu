@@ -55,7 +55,7 @@
 ![Альт текст](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRcC7_vnz12i-v0wbLCG_8vWhW09KxFu1Nz4dTbU6lEqw&s=10)
 ![логотип](https://preview.redd.it/hs049z0cw8hh1.jpg?width=640&crop=smart&auto=webp&s=ecbf365ad0a7cd6bbb5081094d89e54d1462f922 "Подсказка")
 
-[![Клик по картинке](https://preview.redd.it/hs049z0cw8hh1.jpg?width=640&crop=smart&auto=webp&s=ecbf365ad0a7cd6bbb5081094d89e54d1462f922]
+[![Клик по картинке](https://preview.redd.it/hs049z0cw8hh1.jpg?width=640&crop=smart&auto=webp&s=ecbf365ad0a7cd6bbb5081094d89e54d1462f922)](https://ru.pinterest.com/pin/598978819241358131/)
 
 Цитата
 -----
